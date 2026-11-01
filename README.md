@@ -35,5 +35,6 @@ Actively preparing for and open to roles in:
 
 * 💼 **LinkedIn:** [https://www.linkedin.com/in/subrajit-muduli-608557266/]
 * ✉️ **Email:** [mudulisubrajit516@gmail.com]
+* 📞 **Phone:**7008613350
 * 🌐 **Portfolio:** []
-*
+
